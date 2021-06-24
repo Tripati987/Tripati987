@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Baljinder Singh
+### Hi there 👋 I'm Tripati
 
 
 
